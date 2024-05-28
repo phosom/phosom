@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @phosom
+- 👀 I’m interested in expanding my knowledge to the best of my abilites, languages and anything video games. 
+- 🌱 I’m currently learning to take care of myself.
+- 💞️ I’m looking to collaborate on fun and small projects.
+- 📫 If you know me, you know where and how you can reach out to me.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: tri-lingual, not really talk-active
